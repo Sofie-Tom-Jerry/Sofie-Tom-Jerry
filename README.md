@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sofie-Tom-Jerry
 - 👀 I’m interested in Tom and Jerry
 - 🌱 I’m currently learning to animate like Tom and Jerry
-- 💞️ I’m looking to collaborate on tom and Jerry movies
+- 💞️ I’m looking to collaborate on Tom and Jerry movies
 - 📫 How to reach me ...dont
 - 😄 Pronouns: Tom/Jerry
 - ⚡ Fun fact: I like Tom and Jerry
